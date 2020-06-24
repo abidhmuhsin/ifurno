@@ -1,6 +1,6 @@
 # ifurno
 iFurno Website
 
-Coming Soon..!
+Under Construction..!
 
-[Checkout our products at]: https://wa.me/8075328072
+[Click here](https://wa.me/8075328072) to see our product catalogue or chat with us on whatsapp
