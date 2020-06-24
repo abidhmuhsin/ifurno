@@ -3,4 +3,4 @@ iFurno Website
 
 Coming Soon..!
 
-See our products at https://wa.me/8075328072
+[Checkout our products at]: https://wa.me/8075328072
