@@ -1,6 +1,8 @@
 # ifurno
 iFurno Website
 
-Under Construction..!
+Thanks for hopping in. Our Website is under Construction..!
 
-[Click here](https://wa.me/8075328072) to see our product catalogue or chat with us on whatsapp
+Sorry for the inconvenience.
+
+[Click here](https://wa.me/8075328072) to see our product catalogue or get support on our [whatsapp business channel](https://wa.me/8075328072)
